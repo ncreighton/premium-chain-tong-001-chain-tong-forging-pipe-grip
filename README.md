@@ -1,0 +1,2 @@
+# premium-chain-tong-001-chain-tong-forging-pipe-grip
+Tired of juggling scribbled notes, scattered forge references, and mismatched measurements for your chain tong and pipe grip projects? Get a dedicated digital workshop that tracks every detail from raw stock to finished tool.  This Notion template solves the chaos of traditional craft documentation by providing a structured system for forging chain
